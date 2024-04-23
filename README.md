@@ -3,6 +3,7 @@ Coursework Dubai Real Estate Agency
 
 ![image](https://github.com/YuraGolinsky/Coursework-Dubai-Real-Estate-Agency/assets/134283897/bace202d-a7d4-41dc-970d-e823fd54f0d4)
 ![image](https://github.com/YuraGolinsky/Coursework-Dubai-Real-Estate-Agency/assets/134283897/c48e0a9a-05f9-445f-b6e7-18ca967fa687)
+![image](https://github.com/YuraGolinsky/Coursework-Dubai-Real-Estate-Agency/assets/134283897/96a4f2b3-56e1-4d51-ba9b-e72e1730f65c)
 
 
 
